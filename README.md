@@ -9,11 +9,11 @@ Provide customers with best Beauty, Wellness and Health Products
 We want this web application to be agnoistic and one stop solution that caters to all the needs and requirements of International students.
 
 # Team
-Neerav Poriya 
-Vidisha Sawant
-Prashant Shinde
+Neerav Poriya <br>
+Vidisha Sawant <br>
+Prashant Shinde <br>
 Raj Mehta
 
 # Special Mention
-Professor Zhan Zhang
+Professor Zhan Zhang <br>
 Tushar Varma
