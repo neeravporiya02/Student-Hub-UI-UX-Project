@@ -27,5 +27,6 @@ Once we address the important points, it becomes much easier to focus on the rea
 
 # Why it matters?
 “Don’t waste your pain, use it to help others.” – Rick Warren
+
 We want to make it simple for the upcoming international students, so that they do not have to go through all the hardships that one faces and if they must face it, they always have someone to help them. 
 By providing this platform, we are trying to address the important stress points and hope to make it a smooth ride and so that they can really enjoy the experience of visiting a new country away from their loved ones. (Home away from home).
