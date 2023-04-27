@@ -18,6 +18,7 @@ Moving abroad for international students comes with many challenges and you must
 11.	Monthly and yearly living cost 
 12.	Immigration questions
 13.	Immunization form
+
 These are few of the stress areas which majority of the student’s faced issues with, which we found out using our WhatsApp group. Accommodation and health insurance are most important ones that we noticed followed by on campus jobs.
 # Why it is important to address?
 If we take accommodation for reference, the challenges we faced we, how do we trust that the person we are talking to is genuine? Many a times we were asked for application fees and since we had no SSN, we were asked for guarantors and for higher security deposit. Sometimes the person was never there. How do we transfer the money from India for booking the apartment? Do we know someone who can do it on our behalf and can trust us to repay them this big amount? How do we contact foreign numbers from India? All we had to rely on was the video calls we had for viewing the apartment and paying amount in $1000+ dollars, sometimes to find out the video was old or some of the amenities are not present, which were seen in the video, or the photos showed furnished apartments, but we get a blank canvas when we arrive.
